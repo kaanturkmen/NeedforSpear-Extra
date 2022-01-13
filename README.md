@@ -3,8 +3,7 @@ In the Need for Spear game, we have used and manipulated some assets, sounds and
 
 https://www.deviantart.com/ashpwright
 
-https://www.deviantart.com/cherrypiewithpoison/art/
-MMD-Genshin-Impact-Polearm-Spear-Set-DL-861832077
+https://www.deviantart.com/cherrypiewithpoison/art/MMD-Genshin-Impact-Polearm-Spear-Set-DL-861832077
 
 https://drive.google.com/drive/folders/1lx02_w9TFTYdR3aggI1gbXcLr69roaNV
 
